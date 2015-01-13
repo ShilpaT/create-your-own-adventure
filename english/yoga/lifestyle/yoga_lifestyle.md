@@ -16,3 +16,5 @@ lifestyle.
 
 Yoga Lifestyle is about two actions: "cleaning the mirror" and 
 "spreading the Light". 
+
+Yoga is a ancient Indian form of excercise which enchances both physical and spiritual well being.  
